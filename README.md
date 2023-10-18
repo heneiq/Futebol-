@@ -1,0 +1,2 @@
+# Futebol-
+ O futebol, esporte que é considerado a paixão nacional e, sem dúvidas, o mais popular do mundo, começou a ser praticado na Inglaterra, no século XVII. À época, o esporte não tinha o formato que tem hoje e tampouco era chamado de “futebol”. Isso só aconteceu décadas depois, com a criação das regras
